@@ -20,6 +20,7 @@ $${\color{orange}BYI/DNI}$$
 > *If you suddenly say that you remember me, and I forget you. Bear with me, I have bad memory...*
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
 > Please, Dandys world fandom, iwcuf. Unless I'm more comfortable.
 >
 > **BASIC. [DNI CRITERIA.](https://rentry.co/dnfifreaks) Get some common sense**
@@ -29,5 +30,8 @@ $${\color{orange}BYI/DNI}$$
 > Troll skins are fun and cool, but not when I'm busy, or in roleplay. it makes me uncomfy.
 >
 > **I BLOCK, OR HIDE FREELY. DO THESE MORE OFTEN. BLOCKED OR HIDE.**
+
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
 $${\color{yellow}Thanks-For-Reading}$$
+<img width="1280" height="429" alt="Untitled151_20250906105907" src="https://github.com/user-attachments/assets/e7585c67-f39d-4fb4-8e54-a7be329b1c13" />
