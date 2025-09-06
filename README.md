@@ -1,3 +1,33 @@
 <img width="540" height="304" alt="tumblr_5d4a983be8086d336c42df9544a693e5_c5a14125_540 (1)" src="https://github.com/user-attachments/assets/a2c272b0-6767-4b21-a02b-988d1bca3fae" />
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
-$${\color{orange}INTRODUCTION}$$
+### [[RENTRY]](https://rentry.co/SHELLYF0SSILIANN) - [STRW IN WIP]
+
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
+$${\color{orange}BYI/DNI}$$
+
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
+> If out of roleplay and you suddenly decided to chat with me, there's a high chance my responses are awkward, or silence.
+>
+> this is due to my awkwardness to strangers. unless if I'm comfortable or it's a complement like a [CROWN], I'll have a proper response
+>
+> *I do not add people, sadly.*
+>
+> **I am not good at comforting someone, sure I can listen to your vents, but I am unable to comfort you. My presence is enough to comfort you. bear with me.**
+>
+> *If you suddenly say that you remember me, and I forget you. Bear with me, I have bad memory...*
+
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+> Please, Dandys world fandom, iwcuf. Unless I'm more comfortable.
+>
+> **BASIC. [DNI CRITERIA.](https://rentry.co/dnfifreaks) Get some common sense**
+>
+> *I am a minor, please do not do any NSFW actions on me.*
+>
+> Troll skins are fun and cool, but not when I'm busy, or in roleplay. it makes me uncomfy.
+>
+> **I BLOCK, OR HIDE FREELY. DO THESE MORE OFTEN. BLOCKED OR HIDE.**
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+$${\color{yellow}Thanks-For-Reading}$$
