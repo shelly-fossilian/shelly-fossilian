@@ -19,6 +19,8 @@ $${\color{orange}BYI/DNI}$$
 > **I am not good at comforting someone, sure I can listen to your vents, but I am unable to comfort you. My presence is enough to comfort you. bear with me.**
 >
 > *If you suddenly say that you remember me, and I forget you. Bear with me, I have bad memory...*
+>
+> **Whisper me or ask me if you want to do a ship rp! I don't mind those, but I will try my best to do these ship rps!**
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
